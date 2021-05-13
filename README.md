@@ -1,0 +1,5 @@
+- Hi, I’m @jaylin1111
+- I’m interested in never being found in the real world and Arknights
+- I’m currently learning how dumb I am
+- I’m looking to collaborate on nothing, I hate everyone
+- How to reach me > Step 1) Give up
